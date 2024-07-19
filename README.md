@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @curly-y
+- 👀 I’m interested in (music wise) ghost and eminem
